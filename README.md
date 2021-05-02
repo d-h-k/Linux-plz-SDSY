@@ -35,3 +35,6 @@
       - case4) 25/102 : 24.5%
     - 1주일에 100시간씩 공부하기 : 
     - 1
+https://quotefancy.com/quote/1143436/Tim-Cook-Let-your-joy-be-in-your-journey-not-in-some-distant-goal
+
+http://thequotes.in/let-your-joy-be-in-your-journey-not-in-some-distant-goal-tim-cook/
